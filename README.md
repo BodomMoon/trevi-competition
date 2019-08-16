@@ -1,6 +1,21 @@
 ## 第一屆 05/10 冠軍 : Eddie !!!!
-## 第二屆 05/24 冠軍 : Eddie
-* 亞軍 : Bette
+## 第二屆 05/24 冠軍 : Eddie * 2
+    * 亞軍 : Bette
+## 第三屆 06/21 冠軍 : Rance
+    * 亞軍 : Eddie
+    * 季軍 : Joe, Luke, Lian
+> 主持人 : Bette
+
+## 第四屆 08/01 冠軍 : Irene
+    * 亞軍 : Lian
+    * 季軍 : Owen
+> 主持人 : Eddie
+
+## 第五屆 08/16 冠軍 : Irene
+    * 亞軍 Rance
+    * 季軍 : Owen
+> 主持人 : Eddie
+
 
 ## 賽程
 
